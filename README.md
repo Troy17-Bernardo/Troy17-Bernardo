@@ -2,7 +2,7 @@ I’m @Troy17-Bernardo
 I’m interested in advanced and future tecnology
 I’m currently learning more programming languages
 I’m looking to collaborate on multiple projects, it requires more knowledge and programming skills
-How to reach me ... troybernardo248@gmail.com/ (+27)665281213
+How to reach me ... troyborg.llc@yahoo.com/ (+27)716982887
 Pronouns: Mr
 Fun fact: Research after research after research 
 
