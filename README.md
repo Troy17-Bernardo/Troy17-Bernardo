@@ -1,7 +1,7 @@
 I’m @Troy17-Bernardo
 I’m interested in advanced and future tecnology
 I’m currently learning more programming languages
-I’m looking to collaborate on multiple projects, it requires more knowledge and programming skills
+I’m looking to collaborate on multiple projects, which requires more knowledge and programming skills
 Pronouns: Mr
 Fun fact: Research after research after research 
 
